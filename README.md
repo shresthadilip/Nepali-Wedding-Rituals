@@ -77,3 +77,21 @@ Following the Agniparikrama, this is the definitive and most sacred marriage rit
 | 6 | Longevity and Togetherness | "I seek you and only you, to love, to have children, to raise a family, and to experience all the seasons of life." | "I will be the means of your enjoyment through life's seasons; I will cherish you in my heart." |
 | 7 | Friendship and Loyalty | "Allow us to cover the seventh step together, this promise of friendship. Please be my constant companion and friend." | "Yes; today, I secured the highest kind of friendship with you. I will remember the vows we just took and adore you forever sincerely with all my heart." |
 
+## References
+
+1. Nepali Australian. (2014). *Our Story – Satyanarayan Puja (Part 38)*. Retrieved from https://nepaliaustralian.com/2014/11/11/our-story-satyanarayan-puja-part-38/
+2. Nepali Australian. (2014). *Our Story – Mehendi Ceremony (Part 39)*. Retrieved from https://nepaliaustralian.com/2014/11/12/our-story-mehendi-ceremony-part-39/
+3. Nepali Australian. (2014). *Our Story – Supari Ceremony (Part 40)*. Retrieved from https://nepaliaustralian.com/2014/11/13/our-story-supari-ceremony-part-40/
+4. Nepali Australian. (2014). *Our Story – Swayamvar Ceremony (Part 41)*. Retrieved from https://nepaliaustralian.com/2014/11/14/our-story-swayamvar-ceremony-part-41/
+5. Nepali Australian. (2014). *Our Story – Bride Side Reception Ceremony (Part 42)*. Retrieved from https://nepaliaustralian.com/2014/11/16/our-story-bride-side-reception-ceremony-part-42/
+6. Nepali Australian. (2014). *Our Story – Janti Ceremony (Part 43)*. Retrieved from https://nepaliaustralian.com/2014/11/18/our-story-janti-ceremony-part-43/
+7. Nepali Australian. (2014). *Our Story – Groom Side Supari (Part 44)*. Retrieved from https://nepaliaustralian.com/2014/11/24/our-story-groom-side-supari-part-44/
+8. Nepali Australian. (2014). *Our Story – Groom Side Reception (Part 45)*. Retrieved from https://nepaliaustralian.com/2014/11/25/our-story-groom-side-reception-part-45/
+9. Nepali Australian. (2014). *Our Story – Mukh Herne Ceremony (Part 46)*. Retrieved from https://nepaliaustralian.com/2014/11/28/our-story-mukh-herne-ceremony-part-46/
+10. Nepali Australian. (2014). *Our Story – Jwain Bhitraune Ceremony (Part 47)*. Retrieved from https://nepaliaustralian.com/2014/11/30/our-story-jwain-bhitraune-ceremony-part-47/
+11. Nepali Australian. (2014). *Our Story – Wanjala Ceremony (Part 48)*. Retrieved from https://nepaliaustralian.com/2014/12/01/our-story-wanjala-ceremony-part-48/
+12. *Nepali Wedding Ceremony*. Retrieved from https://nepaliweddingceremony.wordpress.com/
+13. ECS Media. *Orbs of Bliss: 12 Suparis*. Retrieved from https://ecs.com.np/features/orbs-of-bliss-12-suparis
+14. Seasons5. *Nepali Wedding Venue Melbourne*. Retrieved from https://seasons5.com.au/nepali-wedding-venue-melbourne/
+15. Studio Kusal. *Newar Wedding*. Retrieved from https://studiokusal.com/newar-wedding/
+16. Daya Foundation. *Newari Rituals and its Procedure Book (English)*. Retrieved from https://dayafoundation.org.np/assets/files/Newari-Rituals-and-its-Procedure-Book-English.pdf
